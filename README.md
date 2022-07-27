@@ -1,1 +1,0 @@
-# Dome-AR-LKIMszdr3
